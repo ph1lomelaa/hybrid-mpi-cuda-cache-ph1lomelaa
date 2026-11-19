@@ -1,1 +1,1 @@
-# hybrid-mpi-cuda-cache-ph1lomelaa
+# Kosmagambetova Muslima - 230103269 - 06P
